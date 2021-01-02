@@ -9,7 +9,7 @@ How (9 ways) to get most out of this book
 5. Revise this book atleast once a month (Use you your nores and markers to do it faster next time)
 6. Apply the learnings in your life for daily problems 
 7. Ask your friends / family to track your progress and give then a dime / doller as you make mistake or deviate from the learnings
-8. Take some time to reflect upon the learning and situations where you have used / not-used the principles and how can you do better next time.
+8. Take some time to reflect upon the learning and situations where you have used the principles and how can you do better next time.
 9. Create a log to see where and how you have applied any of the principles.
 
 
