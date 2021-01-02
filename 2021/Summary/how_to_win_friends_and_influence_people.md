@@ -27,7 +27,7 @@ Part 2. Six Ways to Make People Like You
     a. You can have more friends by becoming more interested into other person rather than trying others to get interested in you.   
     b. No body is ineterested in anybody else, everyone interested in themselves.  
     c. We are interested in others when they are interested in us - Roman Poet,  Pubililius Syrus  
-2. **Smilining**   
+2. **Smiling**   
     a. People who smile tend to manage, teach and sell more effectively.  
     b. You must have good time meeting people if you expect them to have a good time meeting you.  
     c. Try to keep smililing. If you don't feel like smililing, well force yourself to smile and if alone, then try whistle, hum a music, song or tune. Act like you are already happy which in turn will become habit and you will make you happy.  
@@ -40,7 +40,7 @@ Part 2. Six Ways to Make People Like You
 4. **Listening** 
     a. Listening is a great skill and it gives great importance to the person speaking and build a greater conversation and hence social relationship. Be genuinely inetersted the person is talking and ask questions in between as an attentive listener.   
     b. People who talk about themself gives importance to themself only. It is becuase a they are more interested in their wants, problems, situations etc. than yours.  
-5. **Talk about other people's Interests**
+5. **Talk about other person's Interests**
     a. It makes people exicited to hear you as well as engage into the conversations.  
 6. **Make people smile by honest / sincere appreciation - Make them feel more important**  
     a. Always make other person feel important.    
