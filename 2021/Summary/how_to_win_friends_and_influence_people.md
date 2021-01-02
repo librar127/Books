@@ -13,7 +13,7 @@ How (9 ways) to get most out of this book
 9. Create a log to see where and how you have applied any of the principles.
 
 
-Part 1. Fundamental Techniques in handling People
+Part 1: Fundamental Techniques in handling People
 =================================================
 1. Do not criticise, condemn or complain people no matter what mistake has been done. It will do no good to anyone
 2. Do heattly appreciation for the least good people have shown over the blunders they have committed.
@@ -21,7 +21,7 @@ Part 1. Fundamental Techniques in handling People
 
 "The man who can put himself in the place of other men, who can understand the workings of their minds, need never worry about what the future has in store for him" - Owen D. Young
 
-Part 2. Six Ways to Make People Like You
+Part 2: Six Ways to Make People Like You
 ========================================
 1. **Showing Genuine Interest**  
     * You can have more friends by becoming more interested into other person rather than trying others to get interested in you.   
@@ -46,6 +46,23 @@ Part 2. Six Ways to Make People Like You
     * Always make other person feel important.    
     * "The deepest ea in human nature is the craving to be appreciated" - William James  
     * Golden Rule - Treat other peoples the way you want to be treated - All the times and everywhere.  
-    * Talk to people about themselves and they will listen you for hours. Benjamin Disraeli  
+    * Talk to people about themselves and they will listen you for hours. Benjamin Disraeli 
+
+Part 3: How to win people to your way of thinking
+=================================================
+1. **You can't win with an Argument**
+   * Try to avoid it anyhow; what ever you can
+   * You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
+   * ""Hatred is never ended by hatred but by Love" - Buddha
+   * Suggesstions to keep disagreement from becomming arguments:
+      * Welcome the disagreement - It might be good as it might bring something you haven't though about it.It might make you correct about something.
+      * Distrust your first instinctive impression - Our first reaction might be difensive; Be careful, keep kalm and watch it out.
+      * Control your temper
+      * Listen first
+      * Look for the areas of the agreement
+      * Think again your opponent and validate the points mentioned by him / her as it may be right
+      * Thank you opponent sincerely for their interest; since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
+      * Postpone the argument and allow some time in between to think as well collect some evidence - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away?
+      * 
     
  
