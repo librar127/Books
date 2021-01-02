@@ -103,7 +103,35 @@ Part 3: How to win people to your way of thinking
       * Throw yourself or people the challange and try to achieve it. It fuels the competion (desire to excel) and positive outcome.
 
 Part 4: Be a Leader: How to change people without Giving Offense or Arousing Resentment
-======================================================================================
+=======================================================================================
+1. **Begin with praise and honest appreciation**
+   * This works if you find fault in others, try to praise them first and then make the point so that they will take it with right spirit and make amends.
+2. **Call attention to people's mistakes indirectly**
+   * Pointing out one's mistake indirectly does wonders with people who otherwise have reacted bitterly to direct criticism.
+3. **Talk about own mistake before talking about others**
+   * Leaders follow this principle and show them by doint and accepting first
+   * Admitting one's own mistakes, even when one hasn't corrected them - can help somebody else to change his behaviour (or learn from others mistake before commiting by oneself)
+4. **No one take the Order from others**
+   * Never direct or dictake other people do something; Give people the opportunity to do things. This way they will feel ownership and enjoy (take pride) doing it.
+   * People are more likely to take an order if they had a part in the decision that has cause the order to be issued.
+5. **Let the other person save face**
+   * Do not criticise or condemn someone for his / her mistakes in fron of others. Try to understand and appreciate people for the good work they have done. It make make them responsible and make them own the mistakes and they will make amends to it.
+   * Even if we are right and other person is wrong, we sould not let someone to losse face. It only hurt one's ego or self-respect.
+6. **Praise the slightest improvement and praise every improvement**
+   * We are creave for the appreciation and recognition and we do anything to get it. No body want insincerity and flattery. Be genuine in appreciation; let it come from heart.
+   * One's abilities gets faded / witter under critisizm but they cherish / blossum under honest appreciation and encouragement.
+7. **Give the other person fine reputation to live up to**
+   * If you want a person to improve in certain respect, make them think / believe that it is already one of thier outstanding characterstics. Give them the the reputation and they will make efforts to live upto.
+8. **Make the fault seem easy to correct**
+   * Make the people believe that they have abilities to do certain things and they can do it. Encourage them and have faith. Make the things seem easy to do.
+9. **make the other person happy about doing the things you suggest**
+   * Always make the person happy about doing the things that you suggest him to do. Give him title and authority and he will feel hounoured and responsible.
+   * Effective Leader's Guideline:
+      * Do not overcommit. Think in terms of other person's benifit rather than on yourself
+      * Know exactly what do you want from other person to do
+      * Be empathetic and ask yourself what it is that other person wants 
+      * What would be the benifits that other person receive from what you suggest them
+      * Match the benifits with what other person wants
+      * Give the sense to other person as he is working on his idea; take suggestion and incorporate it and this will make other person feel sense of ownership and responsible doing what you suggest. Encourage them about the particular characteristics required and they will live upto the reputation.
+      
    
-    
- 
