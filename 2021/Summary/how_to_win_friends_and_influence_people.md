@@ -35,15 +35,14 @@ Part 2. Six Ways to Make People Like You
     e. Thoughts are very powerful. Picture youself the kind of person you want to become and the transformation starts internally with your thougths. 
     f. "There nothing either good or bad but our thinking make it" - Shakespeare
 3. Remembering Names -
---------------------
     a. Refering people by their names does magic as it emphasizes the effort we are making in the communication as well as gives the sense of special importance to the person we are communicating with.
     b. Name of a person makes and them uniques and sets them apart from all others.
-4.  Listening - 
+4. Listening - 
     a. Listening is a great skill and it gives great importance to the person speaking and build a greater conversation and hence social relationship. Be genuinely inetersted the person is talking and ask questions in between as an attentive listener. 
     b. People who talk about themself gives importance to themself only. It is becuase a they are more interested in their wants, problems, situations etc. than yours
-5.  Talk about other people's Interests
+5. Talk about other people's Interests -
     a. It makes people exicited to hear you as well as engage into the conversations.
-6.  Make people smile by honest / sincere appreciation
+6. Make people smile by honest / sincere appreciation-
     a. Always make other person feel important.
     b. "The deepest ea in human nature is the craving to be appreciated" - William James
     c. Golden Rule - Treat other peoples the way you want to be treated - All the times and everywhere.
