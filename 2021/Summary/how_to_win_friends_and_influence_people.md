@@ -55,14 +55,15 @@ Part 3: How to win people to your way of thinking
    * You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
    * ""Hatred is never ended by hatred but by Love" - Buddha
    * Suggesstions to keep disagreement from becomming arguments:
-      * Welcome the disagreement - It might be good as it might bring something you haven't though about it.It might make you correct about something.
-      * Distrust your first instinctive impression - Our first reaction might be difensive; Be careful, keep kalm and watch it out.
-      * Control your temper
-      * Listen first
-      * Look for the areas of the agreement
-      * Think again your opponent and validate the points mentioned by him / her as it may be right
-      * Thank you opponent sincerely for their interest; since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
-      * Postpone the argument and allow some time in between to think as well collect some evidence - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away?
-      * 
+      * **Welcome the disagreement** - It might be good as it might bring something you haven't though about it.It might make you correct about something.
+      * **Distrust your first instinctive impression** - Our first reaction might be difensive; Be careful, keep kalm and watch it out.
+      * **Control your temper**
+      * **Listen first** - It might bring some good point which you realize you haven't though about it.
+      * **Look for the areas of the agreement** - It might cool down your opponent and take the argument a little politely.
+      * **Be honest** - Accept the good points made by the opponent and think about the mistakes and no shame appolizing the mistakes.
+      * **Think again your opponent and validate the points mentioned by him / her as it may be right**
+      * **Thank you opponent sincerely for their interest;** Since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
+      * **Postpone the argument and allow some time in between to think as well collect some evidence** - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away?
+   
     
  
