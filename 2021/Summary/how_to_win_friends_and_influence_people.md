@@ -24,13 +24,13 @@ Part 1. Fundamental Techniques in handling People
 Part 2. Six Ways to Make People Like You
 ========================================
 1. **Showing Genuine Interest**  
-    a. You can have more friends by becoming more interested into other person rather than trying others to get interested in you.   
-    b. No body is ineterested in anybody else, everyone interested in themselves.  
-    c. We are interested in others when they are interested in us - Roman Poet,  Pubililius Syrus  
+    * You can have more friends by becoming more interested into other person rather than trying others to get interested in you.   
+    * No body is ineterested in anybody else, everyone interested in themselves.  
+    * We are interested in others when they are interested in us - Roman Poet,  Pubililius Syrus  
 2. **Smiling**   
-    a. People who smile tend to manage, teach and sell more effectively.  
-    b. You must have good time meeting people if you expect them to have a good time meeting you.  
-    c. Try to keep smililing. If you don't feel like smililing, well force yourself to smile and if alone, then try whistle, hum a music, song or tune. Act like you are already happy which in turn will become habit and you will make you happy.  
+    * People who smile tend to manage, teach and sell more effectively.  
+    * You must have good time meeting people if you expect them to have a good time meeting you.  
+    * Try to keep smililing. If you don't feel like smililing, well force yourself to smile and if alone, then try whistle, hum a music, song or tune. Act like you are already happy which in turn will become habit and you will make you happy.  
     d. Happiness does'n depend on outward condition, it depends on inner conditions and one can achieve that by controlling own thoughts.  
     e. Thoughts are very powerful. Picture youself the kind of person you want to become and the transformation starts internally with your thougths.   
     f. "There nothing either good or bad but our thinking make it" - Shakespeare  
