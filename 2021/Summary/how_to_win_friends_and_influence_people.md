@@ -95,7 +95,15 @@ Part 3: How to win people to your way of thinking
 09. **Sympathy**
       * Be sympathetic with other peoples idea's and desires. 
       * Three out of four people are hungering and thursting for sympathy; give the love they want and you shall recieve it back.
-10. 
+10. **Appeal to the nobler motives**
+      * People feel happy and responsible if you make them feel honest, upright and fair. 
+11. **Dramatize your Ideas**
+      * Dramatize your ideas in business and other aspect of life as Movies or TV do to attract the crowd.
+12. **Throw down a Challange**
+      * Throw yourself or people the challange and try to achieve it. It fuels the competion (desire to excel) and positive outcome.
+
+Part 4: Be a Leader: How to change people without Giving Offense or Arousing Resentment
+======================================================================================
    
     
  
