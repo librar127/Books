@@ -62,8 +62,18 @@ Part 3: How to win people to your way of thinking
       * **Look for the areas of the agreement** - It might cool down your opponent and take the argument a little politely.
       * **Be honest** - Accept the good points made by the opponent and think about the mistakes and no shame appolizing the mistakes.
       * **Think again your opponent and validate the points mentioned by him / her as it may be right**
-      * **Thank you opponent sincerely for their interest;** Since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
-      * **Postpone the argument and allow some time in between to think as well collect some evidence** - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away?
+      * **Thank your opponent sincerely for their interest;** Since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
+      * **Postpone the argument and allow some time in between to think as well as collect some evidence** - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away.
+2. Don't prove other people wrong Show some respect for their opinion
+   * It only hurt their self-respect and want them to attack back but it never make them change their minds. 
+   * Don't prove as you are smarter than them; it will hurt their feelings and they might not accept you no matter what you try.
+   * A Beautiful line by Galileo - "You can never teach a man anything; you can only  help him find it within himself" 
+   * Lord Chesterfield as he said to his son - "Be wiser than other people if you can but do not tell them so"
+   * Socrates to his followers - "One thing only I know that I know nothing"
+   * Try to phrase as - 'I might be worng; I frequently am. Let's examine the fact'. This may lead to some agreement and opponent might realise he may be wrong too.
+   * When someone expressses their feelings, attitude or belief, our first (almost instant) impression is the judgement rather than understanding of it that's where lies the problem, we should try to understand it.
+   * Read Benjamin Franklin's Autobiography
+   * Don't agrue with your customer, boss, spouse etc. Do not tell them as they are wrong; show them respect for their opinion and be diplomatic sometime.
    
     
  
