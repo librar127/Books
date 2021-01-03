@@ -142,8 +142,8 @@ I purchased this book and trying to write the summary for my own reading and rev
 * Make the people believe that they have abilities to do certain things and they can do it. Encourage them and have faith. Make the things seem easy to do.
 
 ### make the other person happy about doing the things you suggest
-* Always make the person happy about doing the things that you suggest him to do. Give him title and authority and he will feel hounoured and responsible.
-* Effective Leader's Guideline:
+   * Always make the person happy about doing the things that you suggest him to do. Give him title and authority and he will feel hounoured and responsible.
+   * Effective Leader's Guideline:
       * Do not overcommit. Think in terms of other person's benifit rather than on yourself
       * Know exactly what do you want from other person to do
       * Be empathetic and ask yourself what it is that other person wants 
