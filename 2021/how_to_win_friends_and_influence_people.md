@@ -1,7 +1,7 @@
 I purchased this book and trying to write the summary for my own reading and revision purpose. If interested buy this book for you reading!
 
-How (9 ways) to get most out of this book
-=========================================
+# How (9 ways) to get most out of this book
+===========================================
 1. Build / have deep curiousity to under human relationship
 2. Read each chapter twice before moving to the next chapter.
 3. Take a pause and think how can you use any of the suggestions mentioned.
@@ -13,16 +13,16 @@ How (9 ways) to get most out of this book
 9. Create a log to see where and how you have applied any of the principles.
 
 
-Part 1: Fundamental Techniques in handling People
-=================================================
+# Part 1: Fundamental Techniques in handling People
+===================================================
 1. Do not criticise, condemn or complain people no matter what mistake has been done. It will do no good to anyone
 2. Do heattly appreciation for the least good people have shown over the blunders they have committed.
 3. Arouse in the other person an eager want; i.e. try to understand the people / situation by placing yourself at other person's position.
 
 "The man who can put himself in the place of other men, who can understand the workings of their minds, need never worry about what the future has in store for him" - Owen D. Young
 
-Part 2: Six Ways to Make People Like You
-========================================
+# Part 2: Six Ways to Make People Like You
+==========================================
 1. **Showing Genuine Interest**  
     * You can have more friends by becoming more interested into other person rather than trying others to get interested in you.   
     * No body is ineterested in anybody else, everyone interested in themselves.  
@@ -48,8 +48,8 @@ Part 2: Six Ways to Make People Like You
     * Golden Rule - Treat other peoples the way you want to be treated - All the times and everywhere.  
     * Talk to people about themselves and they will listen you for hours. Benjamin Disraeli 
 
-Part 3: How to win people to your way of thinking
-=================================================
+# Part 3: How to win people to your way of thinking
+===================================================
 01. **You can't win with an Argument**
       * Try to avoid it anyhow; what ever you can
       * You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
@@ -102,8 +102,8 @@ Part 3: How to win people to your way of thinking
 12. **Throw down a Challange**
       * Throw yourself or people the challange and try to achieve it. It fuels the competion (desire to excel) and positive outcome.
 
-Part 4: Be a Leader: How to change people without Giving Offense or Arousing Resentment
-=======================================================================================
+# Part 4: Be a Leader: How to change people without Giving Offense or Arousing Resentment
+=========================================================================================
 1. **Begin with praise and honest appreciation**
    * This works if you find fault in others, try to praise them first and then make the point so that they will take it with right spirit and make amends.
 2. **Call attention to people's mistakes indirectly**
