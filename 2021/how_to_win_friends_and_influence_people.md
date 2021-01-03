@@ -13,14 +13,15 @@ I purchased this book and trying to write the summary for my own reading and rev
 1. Create a log to see where and how you have applied any of the principles.
 
 
-## Part 1: Fundamental Techniques in handling People
-1. Do not criticise, condemn or complain people no matter what mistake has been done. It will do no good to anyone
-1. Do heattly appreciation for the least good people have shown over the blunders they have committed.
-1. Arouse in the other person an eager want; i.e. try to understand the people / situation by placing yourself at other person's position.
+## Part 1: (3 Ways) Fundamental Techniques in handling People
+* Do not criticise, condemn or complain people no matter what mistake has been done. It will do no good to anyone
+* Do heattly appreciation for the least good people have shown over the blunders they have committed.
+* Arouse in the other person an eager want; i.e. try to understand the people / situation by placing yourself at other person's position.
 
 "The man who can put himself in the place of other men, who can understand the workings of their minds, need never worry about what the future has in store for him" - Owen D. Young
 
 ## Part 2: Six Ways to Make People Like You
+
 ### Showing Genuine Interest  
 * You can have more friends by becoming more interested into other person rather than trying others to get interested in you.   
 * No body is ineterested in anybody else, everyone interested in themselves.  
@@ -48,78 +49,96 @@ I purchased this book and trying to write the summary for my own reading and rev
 
 ## Part 3: How (12 Tips) to win people to your way of thinking
 ### You can't win with an Argument
-      * Try to avoid it anyhow; what ever you can
-      * You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
-      * ""Hatred is never ended by hatred but by Love" - Buddha
-      * Suggesstions to keep disagreement from becomming arguments:
-         * Welcome the disagreement - It might be good as it might bring something you haven't though about it.It might make you correct about something.
-         * Distrust your first instinctive impression - Our first reaction might be difensive; Be careful, keep kalm and watch it out.
-         * Control your temper
-         * Listen first - It might bring some good point which you realize you haven't though about it.
-         * Look for the areas of the agreement - It might cool down your opponent and take the argument a little politely.
-         * Be honest - Accept the good points made by the opponent and think about the mistakes and no shame appolizing the mistakes.
-         * Think again your opponent and validate the points mentioned by him / her as it may be right
-         * Thank your opponent sincerely for their interest; Since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
-         * Postpone the argument and allow some time in between to think as well as collect some evidence - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away.
+* Try to avoid it anyhow; what ever you can
+* You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
+* ""Hatred is never ended by hatred but by Love" - Buddha
+* Suggesstions to keep disagreement from becomming arguments:
+      * Welcome the disagreement - It might be good as it might bring something you haven't though about it.It might make you correct about something.
+      * Distrust your first instinctive impression - Our first reaction might be difensive; Be careful, keep kalm and watch it out.
+      * Control your temper
+      * Listen first - It might bring some good point which you realize you haven't though about it.
+      * Look for the areas of the agreement - It might cool down your opponent and take the argument a little politely.
+      * Be honest - Accept the good points made by the opponent and think about the mistakes and no shame appolizing the mistakes.
+      * Think again your opponent and validate the points mentioned by him / her as it may be right
+      * Thank your opponent sincerely for their interest; Since they are into argument, it shows their interest in the same topic which can a great thing and finally you might agree at something later and might become friend as well.
+      * Postpone the argument and allow some time in between to think as well as collect some evidence - This time will also give you possibility to rething what you gain from this agrgument even if you win or loose it? what impact it will have on my opponent i.e will make him / her closer or draw them away.
 ### Don't prove other people wrong - Show some respect for their opinion
-      * It only hurt their self-respect and want them to attack back but it never make them change their minds. 
-      * Don't prove as you are smarter than them; it will hurt their feelings and they might not accept you no matter what you try.
-      * A Beautiful line by Galileo - "You can never teach a man anything; you can only  help him find it within himself" 
-      * Lord Chesterfield as he said to his son - "Be wiser than other people if you can but do not tell them so"
-      * Socrates to his followers - "One thing only I know that I know nothing"
-      * Try to phrase as - 'I might be worng; I frequently am. Let's examine the fact'. This may lead to some agreement and opponent might realise he may be wrong too.
-      * When someone expressses their feelings, attitude or belief, our first (almost instant) impression is the judgement rather than understanding of it that's where lies the problem, we should try to understand it.
-      * Read Benjamin Franklin's Autobiography
-      * Don't agrue with your customer, boss, spouse etc. Do not tell them as they are wrong; show them respect for their opinion and be diplomatic sometime.
+* It only hurt their self-respect and want them to attack back but it never make them change their minds. 
+* Don't prove as you are smarter than them; it will hurt their feelings and they might not accept you no matter what you try.
+* A Beautiful line by Galileo - "You can never teach a man anything; you can only  help him find it within himself" 
+* Lord Chesterfield as he said to his son - "Be wiser than other people if you can but do not tell them so"
+* Socrates to his followers - "One thing only I know that I know nothing"
+* Try to phrase as - 'I might be worng; I frequently am. Let's examine the fact'. This may lead to some agreement and opponent might realise he may be wrong too.
+* When someone expressses their feelings, attitude or belief, our first (almost instant) impression is the judgement rather than understanding of it that's where lies the problem, we should try to understand it.
+* Read Benjamin Franklin's Autobiography
+* Don't agrue with your customer, boss, spouse etc. Do not tell them as they are wrong; show them respect for their opinion and be diplomatic sometime.
+
 ### Admit it if you are wrong  
-      * Accept the mistake by yourself if you feel wrong rather than someone point it out to you you and make you feel wrong.
-      * It gives the satisfaction to have the courage to admit the mistake and own it and promise to correct it ant not repeat it.
-      * When someone tries to prove you wrong - 1. And you are right, try to treat / win people gently and tactfully 2. But when you are wrong, be honest and have courage to admit it and learn from mistakes with all our heart. Appreciate the person for pointing it out or making you learn.
-      * As old saying - "By fighting you never get enough but by yielding you get more then you expected"
+* Accept the mistake by yourself if you feel wrong rather than someone point it out to you you and make you feel wrong.
+* It gives the satisfaction to have the courage to admit the mistake and own it and promise to correct it ant not repeat it.
+* When someone tries to prove you wrong - 1. And you are right, try to treat / win people gently and tactfully 2. But when you are wrong, be honest and have courage to admit it and learn from mistakes with all our heart. Appreciate the person for pointing it out or making you learn.
+* As old saying - "By fighting you never get enough but by yielding you get more then you expected"
+
 ### Begin with friendliness
-      * Gentleness and friendliness is always better than fury and force.
-      * Friendly approach and appreciation can make people change their minds more quickly than all the blusters and storming in the world.
+* Gentleness and friendliness is always better than fury and force.
+* Friendly approach and appreciation can make people change their minds more quickly than all the blusters and storming in the world.
+
 ### Secret of Socrates
-      * While discussing with people, don't start emphasize the points which you disagree rather start with what you agree on. This will kick off friendly start.
-      * Get the opponent to say "yes, yes" by posing the question instead of temptation of saying them wrong.
+* While discussing with people, don't start emphasize the points which you disagree rather start with what you agree on. This will kick off friendly start.
+* Get the opponent to say "yes, yes" by posing the question instead of temptation of saying them wrong.
+
 ### Let the other person talk to express himself
-      * Do not try to win a person by your way of thinking. Let him talk and express and do not interupt as he might have a lot to share and might not listen to you.
-      * La Rochefoucauld, the French Philosopher said - "If you want enemies, excel your friend and if you want friends, let your freinds excel you"
+* Do not try to win a person by your way of thinking. Let him talk and express and do not interupt as he might have a lot to share and might not listen to you.
+* La Rochefoucauld, the French Philosopher said - "If you want enemies, excel your friend and if you want friends, let your freinds excel you"
+
 ### Let the other person feel as its his Idea He might feel important and we enjoy the result as the implementation of the Idea.
 ### Cooperation, support others and see things from other's point of view
-      * Cooperation in conversation is achieved when you show that you value other person's opinions and feelings as much important as you do your own.
-      * Seeing things from other person's eye's might ease the tensions when personal problems become overwhelming.
+* Cooperation in conversation is achieved when you show that you value other person's opinions and feelings as much important as you do your own.
+* Seeing things from other person's eye's might ease the tensions when personal problems become overwhelming.
+
 ### Sympathy
-      * Be sympathetic with other peoples idea's and desires. 
-      * Three out of four people are hungering and thursting for sympathy; give the love they want and you shall recieve it back.
+* Be sympathetic with other peoples idea's and desires. 
+* Three out of four people are hungering and thursting for sympathy; give the love they want and you shall recieve it back.
+
 ### Appeal to the nobler motives
-      * People feel happy and responsible if you make them feel honest, upright and fair. 
+* People feel happy and responsible if you make them feel honest, upright and fair. 
+
 ### Dramatize your Ideas
-      * Dramatize your ideas in business and other aspect of life as Movies or TV do to attract the crowd.
+* Dramatize your ideas in business and other aspect of life as Movies or TV do to attract the crowd.
+
 ### Throw down a Challange
-      * Throw yourself or people the challange and try to achieve it. It fuels the competion (desire to excel) and positive outcome.
+* Throw yourself or people the challange and try to achieve it. It fuels the competion (desire to excel) and positive outcome.
 
 ## Part 4: Be a Leader: How (9 Ways) to change people without Giving Offense or Arousing Resentment
+
 ### Begin with praise and honest appreciation
    * This works if you find fault in others, try to praise them first and then make the point so that they will take it with right spirit and make amends.
+
 ### Call attention to people's mistakes indirectly
    * Pointing out one's mistake indirectly does wonders with people who otherwise have reacted bitterly to direct criticism.
+
 ### Talk about own mistake before talking about others
    * Leaders follow this principle and show them by doint and accepting first
    * Admitting one's own mistakes, even when one hasn't corrected them - can help somebody else to change his behaviour (or learn from others mistake before commiting by oneself)
+
 ### No one take the Order from others
    * Never direct or dictake other people do something; Give people the opportunity to do things. This way they will feel ownership and enjoy (take pride) doing it.
    * People are more likely to take an order if they had a part in the decision that has cause the order to be issued.
+
 ### Let the other person save face
    * Do not criticise or condemn someone for his / her mistakes in fron of others. Try to understand and appreciate people for the good work they have done. It make make them responsible and make them own the mistakes and they will make amends to it.
    * Even if we are right and other person is wrong, we sould not let someone to losse face. It only hurt one's ego or self-respect.
+
 ### Praise the slightest improvement and praise every improvement
    * We are creave for the appreciation and recognition and we do anything to get it. No body want insincerity and flattery. Be genuine in appreciation; let it come from heart.
    * One's abilities gets faded / witter under critisizm but they cherish / blossum under honest appreciation and encouragement.
+
 ### Give the other person fine reputation to live up to
    * If you want a person to improve in certain respect, make them think / believe that it is already one of thier outstanding characterstics. Give them the the reputation and they will make efforts to live upto.
+
 ### Make the fault seem easy to correct
    * Make the people believe that they have abilities to do certain things and they can do it. Encourage them and have faith. Make the things seem easy to do.
+
 ### make the other person happy about doing the things you suggest
    * Always make the person happy about doing the things that you suggest him to do. Give him title and authority and he will feel hounoured and responsible.
    * Effective Leader's Guideline:
