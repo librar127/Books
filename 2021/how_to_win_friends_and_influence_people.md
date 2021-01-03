@@ -49,10 +49,10 @@ I purchased this book and trying to write the summary for my own reading and rev
 
 ## Part 3: How (12 Tips) to win people to your way of thinking
 ### You can't win with an Argument
-* Try to avoid it anyhow; what ever you can
-* You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
-* ""Hatred is never ended by hatred but by Love" - Buddha
-* Suggesstions to keep disagreement from becomming arguments:
+   * Try to avoid it anyhow; what ever you can
+   * You can never win with the argument enen if you win. You may get the triumph sometime but it will be empty victory as it will never have other person's goodwill.
+   * ""Hatred is never ended by hatred but by Love" - Buddha
+   * Suggesstions to keep disagreement from becomming arguments:
       * Welcome the disagreement - It might be good as it might bring something you haven't though about it.It might make you correct about something. 
       * Distrust your first instinctive impression - Our first reaction might be difensive; Be careful, keep kalm and watch it out. 
       * Control your temper 
